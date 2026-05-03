@@ -64,7 +64,7 @@ Feel free to explore my other repositories and reach out if you’d like to coll
 ✉️ **Email:** _shubendudas395@gmail.com_  
 🔗 **LinkedIn:** _https://www.linkedin.com/in/shubendudas/_  
 🐦 **Instagram:** _https://www.instagram.com/justshubendu/?hl=en_  
-🌐 **Portfolio:** _https://shubendu.devmanus.com/#contact_
+🌐 **Portfolio:** _https://shubendu7.github.io/Website/_
 
 ---
 
